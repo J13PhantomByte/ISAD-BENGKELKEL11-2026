@@ -1,1 +1,1 @@
-![screenshot|595](https://github.com/J13PhantomByte/drawing/blob/juan/Screenshot%202024-12-19%20130356.png)
+![screenshot|595](https://github.com/J13PhantomByte/ISAD-BENGKELKEL11-2026/blob/juan/lau%20siape.jpg)
